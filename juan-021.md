@@ -1,5 +1,4 @@
 # 卷1　荒塚妖刀
-![COVER](./assets/001_cover.jpg)
 
 **◎書目**
 
