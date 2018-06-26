@@ -8,9 +8,13 @@
 
 ----
 
-原文来自 [東勝洲關係企業](http://www.momoho45.com)
+**版本切換：【[繁體版](legacy.gitbook.com/read/book/ikenbe/ydj)】【[简体版](legacy.gitbook.com/read/book/ikenbe/ydj_sc)】**
 
-各卷文案及其他资料来自 [妖刀記書迷](https://sites.google.com/site/yaodaojifan)
+----
+
+原文來自 [東勝洲關係企業](http://www.momoho45.com)
+
+各卷文案及其他資料來自 [妖刀記書迷](https://sites.google.com/site/yaodaojifan)
 
 ----
 
