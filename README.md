@@ -8,7 +8,7 @@
 
 ----
 
-**版本切換：【[繁體版](legacy.gitbook.com/read/book/ikenbe/ydj)】【[简体版](legacy.gitbook.com/read/book/ikenbe/ydj_sc)】**
+**版本切換：【[繁體版](http://legacy.gitbook.com/read/book/ikenbe/ydj)】【[简体版](http://legacy.gitbook.com/read/book/ikenbe/ydj_sc)】**
 
 ----
 
